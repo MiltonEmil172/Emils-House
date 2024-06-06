@@ -1,3 +1,2 @@
 # Emils-House
-
-![](https://i.pinimg.com/originals/f2/26/35/f22635607bc881102b9c56c9e9f1ffda.gif)
+![](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExeHA1OG9tbG5rcmxlOXR4NHg0cTAwd3pueXY2ODJ6MGg0cGRnaG5ydCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/1qErVv5GVUac8uqBJU/giphy.webp)
